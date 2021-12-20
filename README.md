@@ -1,1 +1,2 @@
-Hallo, ich verstehe diese ganzen Codes nicht, Test-Repo
+Ich schreibe eine kleine Geschichte. Sie beginnt mit einem Mädchen ohne Namen und ohne Geschichte. Sie ist eines Tages aufgewacht, auf einer Wiese....
+ich lade alle ein, mitzuschreiben
